@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Zboro
+- 👀 I’m interested in Who gives a f
+- 🌱 I’m currently learning everything
+- 💞️ I’m looking to collaborate on World invasion
+- 📫 How to reach me: Don't.
